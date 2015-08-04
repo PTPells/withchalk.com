@@ -1,2 +1,0 @@
-# withchalk.com
-Temporary page
